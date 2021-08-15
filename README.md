@@ -1,2 +1,0 @@
-# mknjjkjj.io
-project
